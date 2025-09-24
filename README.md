@@ -11,6 +11,6 @@
 
 ## Hecho por:
 
-###Ana García
+###Mariana Rodríguez
 
-### Linkedin: https://www.linkedin.com/school/aluracursos/
+### Linkedin: [https://www.linkedin.com/in/marirois](https://www.linkedin.com/in/marirois/)
